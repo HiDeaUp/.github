@@ -1,1 +1,1 @@
-## HiDeaUp! When ideas come true! 💡
+## HiDeaUp! When ideas come to life! 🌎
